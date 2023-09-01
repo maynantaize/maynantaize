@@ -1,5 +1,5 @@
 # 💫 About Me:
-Oi, me chamo Maynan. Sou UX Design e Desenvolvedora Júnior, atualmente estou cursando Sistemas para Internet na Universidade Católica de Pernambuco.
+Oi, me chamo Maynan. Sou UX Designer e Desenvolvedora Júnior, atualmente estou cursando Sistemas para Internet na Universidade Católica de Pernambuco.
 
 
 ## 🌐 Socials:
